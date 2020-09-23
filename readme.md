@@ -6,3 +6,4 @@
 ---
 w awd awd
  da wedw awdw ad awd d阿瓦达阿 带挖阿瓦达阿瓦达阿瓦达阿瓦达阿瓦ad123瓦达
+ text2 添加的东西
